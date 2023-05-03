@@ -1,1 +1,1 @@
-lista 1 diego algoritimos e programaçao estruturadalista:
+lista 1 diego algoritimos e programaçao estruturada :
